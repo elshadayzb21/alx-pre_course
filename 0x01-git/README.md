@@ -1,1 +1,1 @@
-starting my git couse
+starting my git course
